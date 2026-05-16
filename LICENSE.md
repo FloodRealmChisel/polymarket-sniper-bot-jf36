@@ -1,4 +1,4 @@
-# 
+# vip bot for Polymarket - scalping-strategies and leverage-trading is the best Polymarket bot, featuring scalping-strategies and leverage-trading. Smart, fast, and optimized for
 
 
 
